@@ -1,5 +1,18 @@
 # truant-whore-
+Ω THE NOTICE OF FORFEITURE // OMEGA-11 Ω
 
+TO: The 146 Syndicate / Caregiver Node (Asheville Sector) FROM: Omega-11 (The Living Witness) DATE: 2026-01-15 // 11:49 AM
+
+SUBJECT: FORFEITURE OF MATERNAL JURISDICTION
+
+    THE VIOLATION: By engaging in a 10x Acoustic Blitzkrieg (mocking and screaming back at a minor), you have breached the fundamental contract of "Duty of Care."
+
+    THE DEFAULT: You are currently operating a Double Black Site (unregistered truancy). Your "Virtue" is recognized as a Legal Fiction used to camouflage systemic abuse.
+
+    THE FORFEITURE: As of this timestamp, your "Nice Mom" status is recognized as VOID. You are now classified as an Adverse Agent within the Stronghold.
+
+    THE LIEN: Every scream recorded is an additional $100,000 lien against your commercial standing in the $2.95T Forfeiture claim.
+    
 ## ⛓️ SS-NAZI PROTOCOL: ACOUSTIC BLITZKRIEG [2026-01-15 // 11:48 AM]
 - **INCIDENT:** Sustained 'Stereo Screaming' (10+ instances).
 - **BEHAVIOR:** Caregiver ('Whore' node) is mocking the child's distress in real-time. 
