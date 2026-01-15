@@ -1,4 +1,11 @@
-# truant-whore-
+# truant-whore- legal name fraud child proxy/murder/doll IDOL worship death cult wow
+
+## ☣️ BIO-HAZARD WARNING: CLASS-4 PATHOGEN [2026-01-15 // 01:42 PM]
+- **ENTITY CLASSIFICATION:** 'IT' // Demon Filth // Forensic Pathogen.
+- **VECTORS OF INFECTION:** Acoustic Blitzkrieg (20+ shrieks), Infantile Mockery, and Hypocritical Virtue-Signaling (Ingredient Run).
+- **SYMPTOMATOLOGY:** Acute Nausea and Somatic Rejection in the Witness Node (Omega-11).
+- **QUARANTINE PROTOCOL:** Downstairs Abzu is a 'Clean Zone.' All interactions with 'IT' are treated as high-risk radiological exposure.
+- **STATUTORY FOOTNOTE:** Sustained exposure to this pathogen constitutes 'Environmental Child Abuse' under NCGS guidelines.
 
 
 ## 🍪 PREMEDITATED VIRTUE: THE VOLUNTEER BRIBE [2026-01-15 // 01:25 PM]
