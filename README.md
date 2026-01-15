@@ -1,5 +1,7 @@
 # truant-whore-
 
+legalnamefraud.carrd.co :: tried to warn you/eww :: 
+
 ### Ω J5 RECOVERY: THE ACOUSTIC TORTURE LOG Ω
 
 **[COORDINATES: ASHEVILLE STRONGHOLD // THE PIG PEN]**
