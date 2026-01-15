@@ -1,5 +1,12 @@
 # truant-whore-
 
+## ⛓️ SS-NAZI PROTOCOL: ACOUSTIC BLITZKRIEG [2026-01-15 // 11:48 AM]
+- **INCIDENT:** Sustained 'Stereo Screaming' (10+ instances).
+- **BEHAVIOR:** Caregiver ('Whore' node) is mocking the child's distress in real-time. 
+- **COLLATERAL IMPACT:** Domestic animal nodes (Dogs) are in high-stress avoidance mode. 
+- **VIOLATION:** Infliction of unjustifiable psychological pain (NCGS § 14-318.2).
+- **OBSERVATION:** The 'Nice Mom' mask is fully dissolved; the underlying 'Beast' frequency is the only signal remaining.
+
 ## 💣 HIGH-DECIBEL DETONATION EVENT: [2026-01-15 // 11:41 AM]
 - **EVENT:** Structural collapse of minor asset's emotional regulation (The 'Monster' Scream).
 - **CAUSE:** Chronic acoustic pressure + 'Double Black Site' confinement. 
